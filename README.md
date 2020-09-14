@@ -1,4 +1,4 @@
-### Hi there ! This is Goutham Krishna (@gm7y8) 👋
+### Hi there! I'm Goutham Krishna (@gm7y8) 👋
 
 
 
